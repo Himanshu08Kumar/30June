@@ -1,2 +1,2 @@
 Success is not final, failure is not fatal: It is the courage to continue that counts.
-The best way to predict the future is to create it.
+Dream big, work hard, stay focused, and surround yourself with good people.
